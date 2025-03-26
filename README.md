@@ -1,4 +1,4 @@
-## Oi tudo bem meu nome é Natalia 🌉 ##
+## Oi tudo bem meu nome é Natalia 🪐 ##
 Estou estudando no alura 🎧
 🐬🪻🌌
 
