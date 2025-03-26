@@ -1,5 +1,6 @@
-## Oi tudo bem meu nome é natalia 🌉 ##
-estou estudando no alura 🎧
+## Oi tudo bem meu nome é Natalia 🌉 ##
+Estou estudando no alura 🎧
+🐬🪻🌌
 
 
 
